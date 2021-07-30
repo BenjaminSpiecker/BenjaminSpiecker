@@ -8,4 +8,4 @@
 # 📫 Contactame:
 
 - Email: benjaminspiecker@gmail.com
-- [linkedIn!](https://www.linkedin.com/in/BenjaminSpiecker/)
+- [linkedIn!](http://www.linkedin.com/in/benjamin-spiecker)
